@@ -1,6 +1,6 @@
 # Hi there 👋
 
-![DIFTeam's GitHub stats](https://github-readme-stats.vercel.app/api?username=DIFTeam&show_icons=true&theme=radical)
+![DIFTeam's GitHub stats](https://github-readme-stats.vercel.app/api?username=DIFTeam&show_icons=true)
 
 💻科大讯飞畅言智慧课堂破解团队
 
