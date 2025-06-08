@@ -10,4 +10,4 @@
 
 ## Connect
 
-- [![Telegram](https://pic1.imgdb.cn/item/6844f7dd58cb8da5c839913d.png)](https://t.me/+NrT8UMGDBztjODg1)[Telegram Group](https://t.me/+NrT8UMGDBztjODg1)
+- [![Telegram](https://pic1.imgdb.cn/item/6844f8ff58cb8da5c83991cd.png)](https://t.me/+NrT8UMGDBztjODg1)[Telegram Group](https://t.me/+NrT8UMGDBztjODg1)
