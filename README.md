@@ -10,13 +10,7 @@
 
 ## Join us
 
-#### External
-
 - [Telegram Group](https://t.me/+NrT8UMGDBztjODg1)
-
-#### Internal
-
-请发送邮件到DIFTeam@163.com，并标注来意
 
 ## Saying
 
