@@ -4,11 +4,7 @@
 
 💻科大讯飞畅言智慧课堂破解团队
 
-## About Us
-
-- 🤔还没想好捏......
-
-## Join us
+## Connect
 
 - [Telegram Group](https://t.me/+NrT8UMGDBztjODg1)
 
